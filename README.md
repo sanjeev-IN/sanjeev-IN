@@ -1,1 +1,3 @@
-Sorrry but you may not find anything interesting here
+I am Sanjeev, a self taught web developer.
+You can reach me on skumar140896@gmail.com
+Good Day!
